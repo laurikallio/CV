@@ -1,1 +1,1 @@
-Please download pdf for best quality and working links
+Please download the pdf for best quality and working links
